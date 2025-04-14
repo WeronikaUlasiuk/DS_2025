@@ -1,3 +1,3 @@
 # DS_2025
-Weronika Ułasiuk
+Weronika Ułasiuk,
 Natalia Wlodarczyk 
